@@ -6,4 +6,4 @@
 ㅤㅤㅤㅤㅤ
 </p>
 ㅤㅤㅤㅤㅤㅤㅤ󠀠
-⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀⠀<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Story+Script&size=17&pause=1000&color=D9E9F7&width=435&lines=I+wanna+share+an+apartment%2C+a+room%2C+and+a+bed;I+wanna+tell+you+I+love+you%2C+but+I+cannot+reach+you" alt="Typing SVG" /></a>
+⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Story+Script&size=17&pause=1000&color=D9E9F7&width=435&lines=I+wanna+share+an+apartment%2C+a+room%2C+and+a+bed;I+wanna+tell+you+I+love+you%2C+but+I+cannot+reach+you" alt="Typing SVG" /></a>
